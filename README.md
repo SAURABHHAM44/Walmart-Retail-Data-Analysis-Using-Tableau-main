@@ -6,7 +6,7 @@
 
 Lets Connect 
 
-[Go to my LinkedIn]((https://www.linkedin.com/in/saurabh-yadav-bb7284305/)) 🌐
+[Go to my LinkedIn](https://www.linkedin.com/in/saurabh-yadav-bb7284305/) 🌐
 
 
 ## PROJECT NAME:
