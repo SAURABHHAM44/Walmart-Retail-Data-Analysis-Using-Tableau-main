@@ -6,9 +6,8 @@
 
 Lets Connect 
 
-[Go to my LinkedIn](https://www.linkedin.com/in/gulshan-gedam-362905209/) 🌐
+[Go to my LinkedIn]([https://www.linkedin.com/in/gulshan-gedam-362905209/](https://www.linkedin.com/in/saurabh-yadav-bb7284305/)) 🌐
 
-[Go to My Dashboard](https://public.tableau.com/app/profile/gulshan.gedam/viz/WalmartRetailDataAnalysisTableauDashboard/WalmartRetailDataAnalysis?publish=yes)
 
 ## PROJECT NAME:
 
